@@ -1,1 +1,1 @@
-# git_gang
+mana gang guru
